@@ -5,7 +5,7 @@
 
 
  ### Entrar em contato comigo 📫
- Isabela.bissi@escola.pr.gov.br
+ isabela.bissi@escola.pr.gov.br
 
  @isasbissi
 
