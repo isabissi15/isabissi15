@@ -2,6 +2,7 @@
 
 - 🍒 Sou estudante do Ensino Medio
 - 📚 Estou estudando no [Alura](www.alura.com.br)
+- 🎬 Gosto de ver séries
 
 
  ### Entrar em contato comigo 📫
